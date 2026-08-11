@@ -25,6 +25,3 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=119>
 </p>
-<p>
-<img src="https://files.catbox.moe/48j0iq.gif">
-</p>
