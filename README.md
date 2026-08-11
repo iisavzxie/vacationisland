@@ -21,5 +21,10 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 <br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀━━━━━━━━
 <br>
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀r☆ntry⠀⠀∘⠀⠀atabook
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://rentry.co/scararinahater">r☆ntry</a>⠀⠀∘⠀⠀⠀<a href="https://loveandobsession.atabook.org">新book</a>
+<br><br>
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=119>
+</p>
+<p>
+What
 </p>
