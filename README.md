@@ -10,5 +10,5 @@
 ${\color{#643282} We \space are \space all \space connected \space to \space each \space other \space biologically, \space to \space the}$
 ${\color{#643282} ⠀⠀earth \space chemically \space and \space to \space the \space rest \space of \space the \space universe}$
 ${\color{#643282}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ atomically.}$
-${\color{#643282} ⠀⠀┄┄┄┄┄┄┄┄┄┄┄┄┄}$
+${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 </p>
