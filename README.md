@@ -7,8 +7,12 @@
 
 <img src="https://files.catbox.moe/428no7.png" width=350>
 <br><br>
-${\color{#643282} We \space are \space all \space connected \space to \space each \space other \space biologically, \space to \space the}$
+${\color{#060612} We \space are \space all \space connected \space to \space each \space other \space biologically, \space to \space the}$
 ${\color{#643282} ⠀⠀earth \space chemically \space and \space to \space the \space rest \space of \space the \space universe}$
-${\color{#643282}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ atomically.}$
+${\color{#DE8885}⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ atomically.}$ <img src="https://i.postimg.cc/Hk3PgPTX/gx227k.gif">
 ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
+<br>
+⠀⠀⠀⠀⠀⠀sᴀᴠ⠀⠀⪩⪨⠀⠀sᴀᴠɪᴛᴀ⠀⠀∘⠀⠀ᴄɪxɪᴊᴀ
+<br>
+⠀⠀⠀⠀⠀⠀⠀𝟣𝟦 𝗒𝗈⠀⠀౿(☆ ≧▽≦)⠀⠀𝗌𝗁𝖾 / 𝗍𝗁𝖾𝗒
 </p>
