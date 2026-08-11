@@ -24,6 +24,4 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://rentry.co/scararinahater">r☆ntry</a>⠀⠀∘⠀⠀⠀<a href="https://loveandobsession.atabook.org">新book</a>
 <br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=119>
-<br>
-Hi
 </p>
