@@ -24,7 +24,5 @@ ${\color{#643282} ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀┄┄┄┄┄}$
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<a href="https://rentry.co/scararinahater">r☆ntry</a>⠀⠀∘⠀⠀⠀<a href="https://loveandobsession.atabook.org">新book</a>
 <br><br>
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<img src="https://files.catbox.moe/9f0ayt.gif" width=119>
-</p>
-<p>
-What
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Quintessential&size=15&duration=4000&pause=1000&color=643282&width=435&lines=So...+Sleepy...+Zzzzzz+%E0%B1%BF(%3D%5E%EF%BD%A5%CF%89%EF%BD%A5%5E%3D);Oh+hey!!+PLS+SIGN+MY+ATA+T_T" alt="Typing SVG" /></a>
 </p>
